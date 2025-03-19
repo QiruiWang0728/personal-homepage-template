@@ -1,3 +1,2 @@
-- 校级一等奖学金, 2022.  
-
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- Awarded the First-Class Scholarship of Wuhan University in 2023 and 2024.
+- Received the National Scholarship at Wuhan University in 2024.
